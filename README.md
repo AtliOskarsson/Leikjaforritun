@@ -1,1 +1,1 @@
-# Leikjaforritun
+# Leikurinn er nettur.
